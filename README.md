@@ -1,5 +1,5 @@
 # Hi, I'm Simeon Krah
-You're welcome to my GitHub Repository
+You're welcome to my GitHub Repository :+1:
 
 
-# Le'
+# 
